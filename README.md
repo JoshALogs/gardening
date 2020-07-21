@@ -3,7 +3,7 @@ Guides and resources for gardening in Southern California
 
 ## Vegetables
 
--[VEGETABLE GARDEN PLANTING GUIDEFOR SAN DIEGO COUNTY](https://www.mastergardenerssandiego.org/downloads/VegetablePlantingGuide.pdf)
+-[Vegetable Garden Planting Guide for San Diego County](https://www.mastergardenerssandiego.org/downloads/VegetablePlantingGuide.pdf)
 
 ## Cover Crops
 
