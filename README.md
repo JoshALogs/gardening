@@ -1,5 +1,5 @@
 # Gardening
-Various guides and resources for gardening in Sourthern California
+Various guides and resources for gardening in Southern California
 
 ## Vegetables
 
